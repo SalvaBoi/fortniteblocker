@@ -1,0 +1,2 @@
+# fortniteblocker
+SAVE YOUR BROTHER WITH THIS SCRIPT
